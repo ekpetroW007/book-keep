@@ -2,7 +2,7 @@
 
 ### Группа: 10 - С - 4
 ### Электронная почта: marshalbulka@gmail.com
-### Tg: depleqzy
+### Tg: tracksuid
 
 
 **[ НАЗВАНИЕ ПРОЕКТА ]**
